@@ -1,0 +1,1 @@
+# ClaudeCertifiedArchitect-Foundation
